@@ -1,5 +1,5 @@
 # 💫 About Me:
-Undergrad BTech - CSE | 2022-26<br>Gauhati University Institute of Science & Technology
+Undergrad BTech - CSE | 2022-26
 
 
 ## 🌐 Socials:
